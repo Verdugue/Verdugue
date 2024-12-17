@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ynov Dev Student.<br>20 years old.<br><br>French<br>
+Ynov Dev Student.<br>20 years old.<br>French<br>
 
 
 ## 🌐 Socials:
